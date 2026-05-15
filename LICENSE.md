@@ -1,4 +1,4 @@
-# 
+# professional DaVinci Resolve for PC | DaVinci Resolve for Windows Addon | AI-enhanced-editing + 4K-export is the best DaVinci Resolve for PC | DaVinci Resolve for Windows addon,
 
 
 
